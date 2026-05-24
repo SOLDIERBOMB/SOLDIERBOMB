@@ -1,10 +1,11 @@
-![](https://64.media.tumblr.com/7ce376a9554ac8d4d2ff73cc6e351865/4c03cf772ce7f671-db/s2048x3072/76d3ad5840c45902dbbe868229787c846c7a850e.pnj)
+![](https://64.media.tumblr.com/56f2519691f56e4fd5c1263d23f86692/58db3ee041286528-0f/s2048x3072/b7a0e90ab85b2d477a91dfb88651045cfde9be32.pnj)
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ࣪ ˖ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=88d5c8&label=♡&style=for-the-badge) 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=F5F5DC&label=♡&style=for-the-badge) 
 
 
-![](https://64.media.tumblr.com/dd5fbcda715f1c33aae36eaa2a0318b9/dffa7166a4cf6ac8-4a/s500x750/5532896593756e81e3f875b8990573360e0e3a31.gifv)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ![](https://media1.tenor.com/m/OaTXG0Mt3QcAAAAd/soldier-boy-giants.gif)
+ 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
