@@ -4,8 +4,8 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ࣪ ˖ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=88d5c8&label=♡&style=for-the-badge) 
 
 
-![](https://i.yapx.ru/dZSK7.png)
+![](https://64.media.tumblr.com/dd5fbcda715f1c33aae36eaa2a0318b9/dffa7166a4cf6ac8-4a/s500x750/5532896593756e81e3f875b8990573360e0e3a31.gifv)
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ﹙ㅤ[info](https://t.me/SJ1NF0)ㅤㅤ [pronouns.cc](https://pronouns.cc/@ueeuueu)ㅤ﹚
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
