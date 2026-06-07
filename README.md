@@ -1,7 +1,5 @@
 
-
-
-
+![](https://64.media.tumblr.com/28e4a0655a72ada88cb43051660e0533/ac5ea246951aba02-d7/s2048x3072/f8d6389b7415128dc997f852fc5fc430bc0e3e0c.pnj)
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.postimg.cc/44wmvKLf/IMG-7733.png)
  
