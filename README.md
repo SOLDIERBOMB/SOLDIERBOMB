@@ -5,7 +5,7 @@
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤrench r renya ㅤ ◠ ㅤshe/her 💌
  
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ18 yo.  ︵  、  ㅤbasic dni ⁺ minors ( thin ice 17 )
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ18 yo.  ︵  、  ㅤbasic dni ⁺ minors ( thin ice 17 )
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) 
 
