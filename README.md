@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/1817d3c806bc9fd2d2a20690aaf150fc/b6aab03707d7053b-08/s2048x3072/48bad3de55aefebc4ef561d1fed23275e57ca613.pnj)
+![](https://64.media.tumblr.com/c6fd929976d1b22c33d2c694d307e6f6/3b60a9a8c78f3128-2a/s1280x1920/e23e973b09ff88ff5275bea56a7d600943662dca.pnj)
 
 ![](https://i.postimg.cc/tCxQ7VbL/IMG-8023.png)
  
