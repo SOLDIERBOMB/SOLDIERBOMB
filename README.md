@@ -7,7 +7,7 @@
  
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ18 YO.  ︵  、  ㅤBASIC DNI + MINORS ( THIN ICE 17 )
   
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/Sn5B34B3' target='_blank'><img src='https://i.postimg.cc/Sn5B34B3/IMG-8027.png' border='0' alt='IMG-8027'></a>
 
