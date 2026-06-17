@@ -3,9 +3,9 @@
 ![](https://i.postimg.cc/tCxQ7VbL/IMG-8023.png)
  
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ*renya* r *rench* ㅤ ◠ ㅤshe/her 💌
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ*renya* r *rench* ㅤ ◠ ㅤ*she/her* 💌
  
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤ18 yo  ︵  、  ㅤbasic dni *+* minors *( thin ice 17 )*
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤ*18 yo*  ︵  、  ㅤ*basic dni* *+* *minors* *( thin ice 17 )*
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) 
 
