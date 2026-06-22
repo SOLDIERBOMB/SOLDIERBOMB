@@ -5,9 +5,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/k2Hd31MT' target='_blank'><img src='https://i.postimg.cc/k2Hd31MT/Hp-GMQDO-hr-NKy-P32Os-ZSfq-SE3Zzj-w-Stwd-NXfc63juq6X-Dnznufz-GXu1P2E9m9k-Hi-Se-Vqnor-Vgnu-Nkmh-F-2OX.jpg' border='0' alt='Hp-GMQDO-hr-NKy-P32Os-ZSfq-SE3Zzj-w-Stwd-NXfc63juq6X-Dnznufz-GXu1P2E9m9k-Hi-Se-Vqnor-Vgnu-Nkmh-F-2OX'></a>
  
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ*renya* r *rench* ㅤ ◠ ㅤ*she/her* 💌
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤrenya r rench ㅤ ◠ ㅤshe/her 💌
  
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤㅤ*18 yo*  ︵  、  ㅤ*basic dni, minors* *( thin ice 17 )*
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤㅤ18 yo  ︵  、  ㅤbasic dni, minors ( thin ice 17 )
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ꒰ ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) ꒱ 
 
