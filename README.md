@@ -1,8 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://readme-typing-svg.herokuapp.com?color=808080&lines=♡+♡+♡+♡+♡)](https://git.io/typing-svg)
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ᵈᵉᵃᵗʰᵐᵉᵗᵃˡ ‾ ᵖᵃⁿᶜʰⁱᵏᵒ
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/CZTD4ZDD' target='_blank'><img src='https://i.postimg.cc/CZTD4ZDD/IMG-8127.jpg' border='0' alt='IMG-8127'></a>
  
 
