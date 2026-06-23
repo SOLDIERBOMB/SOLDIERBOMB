@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://readme-typing-svg.herokuapp.com?color=808080&lines=♡+♡+♡+♡+♡)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://readme-typing-svg.herokuapp.com?color=808080&lines=♡+♡+♡+♡+♡)](https://git.io/typing-svg)
 
 
 
