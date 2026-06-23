@@ -1,16 +1,16 @@
-![](https://64.media.tumblr.com/c6fd929976d1b22c33d2c694d307e6f6/3b60a9a8c78f3128-2a/s1280x1920/e23e973b09ff88ff5275bea56a7d600943662dca.pnj)
+![](https://64.media.tumblr.com/5bf866e61f86c5964ef296f9a2504584/779aa251fd339498-54/s2048x3072/bf506967578525f0c0bd9cfb28302599cddcb5d1.pnj)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ᵈᵉᵃᵗʰᵐᵉᵗᵃˡ ‾ ᵖᵃⁿᶜʰⁱᵏᵒ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/k2Hd31MT' target='_blank'><img src='https://i.postimg.cc/k2Hd31MT/Hp-GMQDO-hr-NKy-P32Os-ZSfq-SE3Zzj-w-Stwd-NXfc63juq6X-Dnznufz-GXu1P2E9m9k-Hi-Se-Vqnor-Vgnu-Nkmh-F-2OX.jpg' border='0' alt='Hp-GMQDO-hr-NKy-P32Os-ZSfq-SE3Zzj-w-Stwd-NXfc63juq6X-Dnznufz-GXu1P2E9m9k-Hi-Se-Vqnor-Vgnu-Nkmh-F-2OX'></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/CZTD4ZDD' target='_blank'><img src='https://i.postimg.cc/CZTD4ZDD/IMG-8127.jpg' border='0' alt='IMG-8127'></a>
  
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤrenya r rench ㅤ ◠ ㅤshe/her 💌
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤrenya r rench ㅤ  ㅤshe/her 🐑
  
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤㅤ18 yo  ︵  、  ㅤbasic dni, minors ( thin ice 17 )
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤㅤ18 yo  ㅤㅤ     basic dni , minors ( thin ice 17 )
   
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ꒰ ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=FF645C&label=♡&style=for-the-badge) ꒱ 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ꒰ ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=808080&label=♡&style=for-the-badge) ꒱ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/8fbca61abcddde3a22943a838dd7b315/851a1ef7d7001340-02/s100x200/a56a3a2346fe397d779387986ea0c86970c7883b.pnj) ![](https://64.media.tumblr.com/3a3c911dd3e3926ae147a370b2977245/851a1ef7d7001340-a4/s100x200/ff4309cd7b6664ee4b62e2173a09e2d292ab32a9.gifv) ![](https://64.media.tumblr.com/dec7657fa1a7a01c5298aaca9cd0e4ea/851a1ef7d7001340-bd/s100x200/1f60c153c33bdd541414d8f4cc2a4bff24dafb1f.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/1623520a3cb5ffed62d0e920c6fe2db3/0166d90c292fe3a6-6c/s100x200/baf0c3260da20c11037b851b2d93ccd4c85f0b02.pnj) ![](https://64.media.tumblr.com/1995b7cde3acb7980dc4900c4ae5f7c6/1601b740f5d2602f-cf/s100x200/736d4926705ed8ee4c9856e6d921cf118f7a3644.gifv) ![](https://64.media.tumblr.com/c1667adbcf36cd7fc19938b346c85098/2d76b6a0f1109659-a2/s100x200/715ceb8eb70cd3b2fbaf2591f9c4a219a6a05a7d.pnj)
 
-![](https://64.media.tumblr.com/c6fd929976d1b22c33d2c694d307e6f6/3b60a9a8c78f3128-2a/s1280x1920/e23e973b09ff88ff5275bea56a7d600943662dca.pnj)
+![](https://64.media.tumblr.com/ffd0681130c01d319a021ce2a414c7f3/779aa251fd339498-6a/s2048x3072/4428beb44111591e4bfd1cc37450e7cd7355342d.pnj)
