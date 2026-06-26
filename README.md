@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/fc020e0593696586eb3929dd8afa476f/70ecac85d7ae4d55-ba/s1280x1920/ff6f57293ea680e95a5bad315b85dc7c6d94bf58.pnj)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/CZTD4ZDD' target='_blank'><img src='https://i.postimg.cc/CZTD4ZDD/IMG-8127.jpg' border='0' alt='IMG-8127'></a>
  
