@@ -1,11 +1,4 @@
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/CZTD4ZDD' target='_blank'><img src='https://i.postimg.cc/CZTD4ZDD/IMG-8127.jpg' border='0' alt='IMG-8127'></a>
- 
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤrenya r rench ㅤ  ㅤshe/her 🐑
- 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ      ㅤㅤ   18 yo  ㅤㅤ     basic dni , minors ( thin ice 17 )
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ꒰ ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=808080&label=♡&style=for-the-badge) ꒱ 
 
